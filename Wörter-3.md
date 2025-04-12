@@ -1,0 +1,1 @@
+Schlect; die Zeit / Zeinen; hier; Bald; Die Tasche / Taschen; Schnell; Die Wohnung / Wohnungen; Horen; Langsam;

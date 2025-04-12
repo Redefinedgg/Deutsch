@@ -1,0 +1,1 @@
+da; wichtig; schlecht; sauber; die Zeit / Zeiten; hier; bald; die Tasche / Taschen; jetzt; haben; selten; draußen; schön; der Weg (виg) / Wege; schnell; die Wohnung (воонун) / Wohnungen (вонунен); sein; auf; hören; aber; Groß; langsam
