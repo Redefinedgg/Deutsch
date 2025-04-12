@@ -1,1 +1,1 @@
-da; wichtig; schlecht; sauber; die Zeit / Zeiten; hier; bald; die Tasche / Taschen; jetzt; haben; selten; draußen; schön; der Weg (виg) / Wege; schnell; die Wohnung (воонун) / Wohnungen (вонунен); sein; auf; hören; aber; Groß; langsam
+Suchen; Das Tier / Tiere; krank; flaumig; bezahlen; schreiben; der Kopf / Köpfe; laufen; schlafen; geschaft; drinnen; die Miete / Mieten; die Brücke / Brücken; Schwierig; Geburstag; schnarcht; Das Lied / Lieder; leise; fliegen; Schlecht; singen; warten; wichtig; wo; wie; warum; durst; brauchen; sehr; Huhn
