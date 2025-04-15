@@ -1,1 +1,1 @@
-und;
+und; Meine Hobbys sind Programmieren und Deutsch, du?; trinken; singen; der Spross / Sprösslinge; der Stolz; die Katze / Katzen; was; Woher kommst du?; das Tier / Tiere; der Stuhl / Stühle; die Asche / Aschen; hören; jetzt; billig; fernsehen (Фернцийьен); bei (+ Dativ); spielen; verstehen; sauber (зауба); 

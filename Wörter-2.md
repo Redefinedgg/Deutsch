@@ -1,1 +1,1 @@
-Suchen; Das Tier / Tiere; krank; flaumig; bezahlen; schreiben; der Kopf / Köpfe; laufen; schlafen; geschaft; drinnen; die Miete / Mieten; die Brücke / Brücken; Schwierig; Geburstag; schnarcht; Das Lied / Lieder; leise; fliegen; Schlecht; singen; warten; wichtig; wo; wie; warum; durst; brauchen; sehr; Huhn
+Schließen; Wachsen; Aufmachen; Aufhören; Durfen;

@@ -1,1 +1,1 @@
-Schlect; die Zeit / Zeinen; hier; Bald; Die Tasche / Taschen; Schnell; Die Wohnung / Wohnungen; Horen; Langsam;
+Woher; der Zug / Züge; anhalten; hassen; fühlen; anfangen; versuchen; hoffen; planen; pünktlich; gesund; schwer; Lust; reden; kümmern; launisch; beschwert; die Manier / Manierenl; Bring; das Wasser; manchmal; traurig; beschließen; reisen;
