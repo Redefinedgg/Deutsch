@@ -1,1 +1,0 @@
-kümmern; beschwert; beschließen;

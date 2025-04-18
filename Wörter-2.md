@@ -1,1 +1,0 @@
-Schließen; Wachsen; Aufmachen; Aufhören; Durfen;
